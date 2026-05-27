@@ -4,7 +4,7 @@
 
     about me !
 
-`` -wwwww I'm always on PonyTown whenever I feel lonely or stressed, and if you ever see me , please don't be afraid to cuddle + hide + kiss !!! i adore even the slightest interaction with anyone ! it could be a tiny convo or just wanting to cuddle , even if it's through a screen, it makes me feel happy and comfortable with my surroundings! ^w^ . OH and a quick thing -!! If u ever see me huddled around a pony who always has "no chat" in their name, it's just my alt account ! I don't really have any friends, besides just one or two people I adore so much for, the purpose of said alt account was just for me to feel less lonely , even if it just makes me look crazy in the end X ( .``
+`` -wwwww I'm always only on PonyTown whenever I feel lonely or stressed, and if you ever see me , please don't be afraid to cuddle + hide + kiss !!! i adore even the slightest interaction with anyone ! it could be a tiny convo or just wanting to cuddle , even if it's through a screen, it makes me feel happy and comfortable with my surroundings! ^w^ . OH and a quick thing -!! If u ever see me huddled around a pony who always has "no chat" in their name, it's just my alt account ! I don't really have any friends, besides just one or two people I adore so much for, the purpose of said alt account was just for me to feel less lonely , even if it just makes me look crazy in the end X ( .``
 
 `` --i'm always around the phighting area in pony town if u'd like to find me ! I'd always be using a hyperlaser or rocket cosplay as those two are my known comfort characters! (i adore boombox and sword a lot more ahahah..) or , , I would be outside the bakery area using a d3rlord3 cosplay ! (or even zuka at some point) | always feel free to c+h+k or int !!! ^_^ ``
 
@@ -25,4 +25,6 @@ DNI :: ``basic dni criteria !! I do not feel comfortable being friends or social
 
 `` -homophobic/transphobic/heterophobic , ped0s/maps , proshippers/darksippers , racists/people who discriminate others ``
 
-`` --including :: people who don't respect other people's ships , people who make others feel uncomfortable (even if it's just pixels, just leave them alone. if they don't want to be covered or touched, just leave them alone.) ``
+`` --including :: people who don't respect other people's ships , people who make others feel uncomfortable (even if it's just pixels, just leave them alone. if they don't want to be covered or touched, just walk away from them.) ``
+
+    thas all : D
