@@ -25,4 +25,4 @@ DNI :: ``basic dni criteria !! I do not feel comfortable being friends or social
 
 `` -homophobic/transphobic/heterophobic , ped0s/maps , proshippers/darksippers , racists/people who discriminate others ``
 
-`` --including :: people who don't respect other people's ships , people who make others feel uncomfortable (even if it's just pixels, just leave them alone. if they don't want to be covered or touched, just leave them alone.)
+`` --including :: people who don't respect other people's ships , people who make others feel uncomfortable (even if it's just pixels, just leave them alone. if they don't want to be covered or touched, just leave them alone.) ``
