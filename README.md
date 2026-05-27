@@ -8,8 +8,10 @@
 
 `` --i'm always around the phighting area in pony town if u'd like to find me ! I'd always be using a hyperlaser or rocket cosplay as those two are my known comfort characters! (i adore boombox and sword a lot more ahahah..) or , , I would be outside the bakery area using a d3rlord3 cosplay ! (or even zuka at some point) | always feel free to c+h+k or int !!! ^_^ ``
 
-    fandoms
+    fandoms / comfort character(s)
 `` #1 phighting     #2 grace     #3 sfawtde / dawtde     #4 society of explorers and adventurers     #5 wonderland.jar ``
+
+`` Rocket [P!] , Boombox [P!] , Hyperlaser [P!] . Doombringer [grace] , Goober [grace] , Sorrow [grace] . no_one/OneIwNo46 [wonderland.jar] ``
 
     BYI / DNI (if u didn't see my strawpage)
 
