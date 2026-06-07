@@ -8,25 +8,29 @@
 
 `` --i'm always around the phighting area in pony town if u'd like to find me ! I'd always be using a hyperlaser or rocket cosplay as those two are my known comfort characters! (i adore boombox and sword a lot more ahahah..) or , , I would be outside the bakery area using a d3rlord3 cosplay ! (or even zuka at some point) | always feel free to c+h+k or int !!! ^_^ ``
 
-    fandoms / comfort character(s)
+    fandoms int !!!
 `` #1 phighting     #2 grace     #3 sfawtde / dawtde     #4 society of explorers and adventurers     #5 wonderland.jar ``
-
-`` Rocket [P!] , Boombox [P!] , Hyperlaser [P!] . Doombringer [grace] , Goober [grace] , Sorrow [grace] . no_one/OneIwNo46 [wonderland.jar] ``
 
     BYI / DNI (if u didn't see my strawpage)
 
 `` -as u may know , lots of ppl would have boundaries about certain things they're comfortable continuing a conversation about and things they aren't , I may be unaware about the things that could make one feel uncomfy around me (pls pls let me know so I will avoid it)-- ``
 
-BYI :: `` --I am a severly sensitive person , pls be aware that I take almost any harsh insult hurtful (even if unintended to be mean) ...not at all great with jokes because at some point I have a hard time identifying whether they are meant to be taken seriously or as a joking way !! since.. I've been used to being around people who joke about mental problems, its... bad. `` 
+BYI ::
+
+`` --I am a severly sensitive person , pls be aware that I take almost any harsh insult hurtful (even if unintended to be mean) ...not at all great with jokes because at some point I have a hard time identifying whether they are meant to be taken seriously or as a joking way !! since.. I've been used to being around people who joke about mental problems, its... bad. `` 
 
 `` -I may act pretty distant or jealous whenever someone's attention is focused on someone else , which !! I'm trying very hard to overcome because I do not want anyone to feel guilty over something that I'm meant to take care on my own as it is my responsibility . But int w care/caution just in case !! ``
 
 `` --I am very VERY bad at talking in vc/text , thus-- I don't really go out and talk in pony town otherwise I'm near an oomf , i don't have any communication disabilities (i'm not diagnosed so idk) , I am just not used to having an ordinary conversation with anyone or able to keep one up without having to stutter and slur my words in embarassment . ``
 
-DNI :: ``basic dni criteria !! I do not feel comfortable being friends or socializing with anyone who are the following-- ``
+`` -even if I may not have c+h in my user , please feel free to cuddle / hide / kiss anytime !!! ^_^ I really adore being around people regardless without interaction ! ``
 
-`` -homophobic/transphobic/heterophobic , ped0s/maps , proshippers/darksippers , racists/people who discriminate others ``
+DNI ::
 
-`` --including :: people who don't respect other people's ships , people who make others feel uncomfortable (even if it's just pixels, just leave them alone. if they don't want to be covered or touched, just walk away from them.) ``
+`` -homophobic/transphobic/heterophobic , ped0s/maps , proshippers/darkshippers , racists/people who discriminate others ``
+
+`` --people who make fun of/disrespect people with TD/CD , just leave them alone, even if you think it's dumb. It's not hard to just let people be. You don't have to make it a big deal. ``
+
+`` -please don't discuss any freaky or non-appropriate topics w me , I would not feel comfortable continuing a conversation that would have anything remotely related to nsfw ``
 
     thas all : D
